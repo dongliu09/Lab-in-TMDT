@@ -12,3 +12,10 @@ So about the **experience** during the visiting period in Toronto, I've achieve 
 
 1. summery my data of the projects i'm currently working on.
 2. to get more in vitro data. 
+
+
+
+## Anything can happen
+
+1. The ICP-MS machine was down yesterday. I did not know if that's my mistake or not? But there's no sign anyone else used in Tuesday. 
+2. I am gathering the data but felt a litter tired these days. 
