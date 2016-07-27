@@ -19,3 +19,19 @@ So about the **experience** during the visiting period in Toronto, I've achieve 
 
 1. The ICP-MS machine was down yesterday. I did not know if that's my mistake or not? But there's no sign anyone else used in Tuesday. 
 2. I am gathering the data but felt a litter tired these days. 
+
+
+
+## The farawell lunch and gift from the lab
+
+After Tue's labmeeting, there's a traditional farewell lunch for the leaving member and we choose to eat sushi this time. Though i haven't say a lot in the lunch. I was warmhearted by the kindness of the group and their surprising gifts. Thank you all for adding the fanstastic memory in my last week in Zheng lab.
+
+
+
+## About the task and work going
+
+Zheng lab provided the excelent conditons for researches and permit the students to illustrate their ideas and In my mind, this is what a promising group should have. First you have the motivation to go deeper into your area, and you have the abandunt funding to support it, which need your talents in the "a-ha" moment in your research area. Not just repeat or mimic the proved theroy, but lead out the new sight into into from the constrution to application in treatment. God bless the group. 
+
+
+
+I'll leave next Monday so MISS YOU ALL!
